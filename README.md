@@ -6,10 +6,13 @@
 To expose the widespread phenomenon of corruption and incompetence in the Chinese government,    </br>
 the use of power to coerce, the mutual deception of officials and the sale of women by each other.  </br>
 
+她们有专门网上写手，网上段子手，视频专发人员  </br>
 
+They have special online writers, online scripts, video professionals.</br>
 
+无视老年人和儿童健康 </br>
 
-
+Ignoring the health of the elderly and children. </br>
 
 
 
