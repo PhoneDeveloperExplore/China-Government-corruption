@@ -13,6 +13,13 @@ They have special online writers, online scripts, video professionals，AV indus
 
 Ignoring the health of the elderly and children. </br>
 
+无视过去和未来</br>
+
+Ignoring the past and the future.</br>
+
+无视人权</br>
+
+Disregard of human rights </br>
 
 
 
