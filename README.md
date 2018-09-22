@@ -5,7 +5,7 @@
 To expose the widespread phenomenon of corruption and incompetence in the Chinese government,    </br>
 the use of power to coerce, the mutual deception of officials and the sale of women by each other.  </br>
 
-她们有专门网上写手，网上段子手，视频专发人员,特指AV产业集群  </br>
+她们有专门网上写手，网上段子手，视频专发人员，特指AV产业集群  </br>
 
 They have special online writers, online scripts, video professionals，AV industry cluster. </br>
 
