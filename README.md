@@ -1,5 +1,8 @@
 # China-Government-corruption
 
+abnormal government
+
+
 揭露中国政府腐败无能，利用职权操逼，官官相互，互相欺骗买卖女人的社会普遍现象，
 
 To expose the widespread phenomenon of corruption and incompetence in the Chinese government,    </br>
