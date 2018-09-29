@@ -1,7 +1,7 @@
 # China-Government-corruption
 
 abnormal government
-
+-------------------------------------------
 
 揭露中国政府腐败无能，利用职权操逼，官官相互，互相欺骗买卖女人的社会普遍现象，
 
@@ -27,6 +27,9 @@ Disregard of human rights </br>
 卖假货给共众
 
 Selling fake goods to common people　</br>
+
+
+---------------------------------------------------
 
 
 
