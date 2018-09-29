@@ -24,8 +24,9 @@ Ignoring the past and the future.</br>
 
 Disregard of human rights </br>
 
+卖假货给共众
 
-
+Selling fake goods to common people　</br>
 
 
 
