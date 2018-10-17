@@ -1,4 +1,4 @@
-# China-Government-corruption
+# China-Government-Corruption
 
 abnormal government
 -------------------------------------------
