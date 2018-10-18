@@ -29,6 +29,15 @@ Disregard of human rights </br>
 Selling fake goods to common people　</br>
 
 
+中央集权；　　　　　　　　　　　</br>
+电脑程序都无法正常使用！　　　　</br>
+
+
+Centralization;　　　　　　　</br>
+Computer programs are not working properly!　　　　</br>
+
+
+
 ---------------------------------------------------
 
 
