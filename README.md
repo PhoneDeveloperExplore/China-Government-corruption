@@ -28,6 +28,8 @@ Disregard of human rights </br>
 
 Selling fake goods to common people　</br>
 
+Computer programm has problem coun't Solve </br>
+
 
 中央集权；　　　　　　　　　　　</br>
 电脑程序都无法正常使用！　　　　</br>
