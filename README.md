@@ -38,13 +38,30 @@ Computer programm has problem coun't Solve </br>
 Centralization;　　　　　　　</br>
 Computer programs are not working properly!　　　　</br>
 
+use food use money oppress people for work </br>
+用食物金钱压迫人民工作</br>
+
+china government　</br>
+中国政府 </br>
+
+Mr.Liu </br>
+刘学军</br>
+
+Mr.Guo <br>
+郭政委 </br>
+
+郭政　</br>　　
 
 
 ---------------------------------------------------
-
-
 
 2018.09.22 </br>
 2018.12.23 last edit time</br>
 Yu Peng</br>
 余 鹏 </br>
+
+twice edit time:2019.03.14</br>
+Yu Peng</br>
+余鹏</br>
+
+
