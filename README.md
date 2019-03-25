@@ -41,6 +41,16 @@ Computer programs are not working properly!　　　　</br>
 use food use money oppress people for work </br>
 用食物金钱压迫人民工作</br>
 
+about some program some idea 
+about power with people programm 
+some high voltage code
+利用人海编程,传递信息的研究,
+利用人海编程,强化药性的研究,
+利用人海编程,毒品药性强弱的研究,
+利用人海编程,改变物体本质特性的研究,
+药品改变人体基因的研究,                                                                          
+存储介质,文件资料,对人体基因的影响,    
+
 china government　</br>
 中国政府 </br>
 
