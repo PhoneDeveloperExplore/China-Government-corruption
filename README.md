@@ -67,6 +67,13 @@ china government　</br>
 
 一人一派,多党执政,杀习近平,太正常了</br>
 
+
+  Because Chinese prince, Queen Mother, Xi Jinping, Peng Liyuan,                            </br>
+  I choose to keep the algorithm secret, and the algorithm is kept secret forever.          </br>
+  因为中国皇子,皇妈,习近平,彭丽媛,我选择将算法保密,程序算法永久保密.                              </br>
+
+
+
 ---------------------------------------------------
 
 2018.09.22 </br>
@@ -78,4 +85,6 @@ twice edit time:2019.03.14</br>
 Yu Peng</br>
 余鹏</br>
 
-
+three edit time:2019.11.28</br>
+Yu Peng</br>
+余 鹏 </br>
